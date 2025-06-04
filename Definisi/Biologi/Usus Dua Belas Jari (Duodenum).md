@@ -1,0 +1,13 @@
+Pernahkah kamu berpikir bagaimana makanan yang sudah dihancurkan di lambung bisa diolah lebih lanjut agar tubuh bisa menyerap nutrisinya? Nah, proses penting ini dimulai di sebuah bagian usus yang disebut **usus dua belas jari**! Ini adalah **bagian paling awal dari usus halus kita**.
+
+Secara harfiah, **usus dua belas jari** adalah bagian awal dari saluran pencernaan panjang yang kita sebut **usus halus**. Namanya unik, "dua belas jari", karena panjangnya diperkirakan sekitar 25-30 sentimeter, atau kira-kira selebar 12 jari yang dijejerkan. Bentuknya melengkung seperti huruf 'C' dan terletak tepat setelah lambung.
+
+Kalau kita telusuri asal katanya, nama "usus dua belas jari" ini adalah terjemahan langsung dari bahasa Latin "duodenum". Kata "duodenum" berasal dari frasa Latin "duodenum digitorum" yang berarti "dua belas jari". Penamaan ini sudah ada sejak zaman dahulu kala untuk menggambarkan panjangnya yang pendek dibandingkan dengan bagian usus lainnya.
+
+Lalu, apa sih tugas utama usus dua belas jari ini sebagai bagian dari usus halus? Tugas utamanya adalah sebagai **tempat awal pencernaan kimiawi yang paling penting** dan **penyerap nutrisi pertama**. Setelah makanan diolah menjadi bubur cair di lambung, ia akan perlahan-lahan masuk ke usus dua belas jari.
+
+Bagaimana cara kerjanya? Saat makanan masuk ke usus dua belas jari, bagian usus halus ini akan menerima bantuan dari dua organ penting lainnya: **hati** dan **pankreas**. Hati akan mengirimkan cairan empedu (yang dibuat oleh hati dan disimpan di kantung empedu) untuk membantu mencerna lemak. Sementara itu, pankreas akan mengirimkan cairan pencernaan yang mengandung banyak enzim. Enzim-enzim ini seperti "gunting kecil" yang bertugas memecah karbohidrat, protein, dan lemak menjadi bagian-bagian yang lebih kecil lagi sehingga siap diserap oleh tubuh.
+
+Di usus dua belas jari inilah sebagian besar proses pencernaan kimiawi terjadi, mengubah makanan menjadi molekul-molekul yang sangat kecil agar bisa diserap oleh bagian usus halus selanjutnya, yaitu jejunum dan ileum.
+
+Jadi, **usus dua belas jari** adalah bagian pertama dan sangat krusial dari usus halus kita. Ia adalah tempat di mana makanan bertemu dengan cairan empedu dan enzim pencernaan dari hati dan pankreas untuk dipecah menjadi bentuk yang paling sederhana. Menjaga kesehatan usus dua belas jari, misalnya dengan mengonsumsi makanan seimbang, penting agar pencernaan kita selalu berjalan lancar dan tubuh bisa mendapatkan semua nutrisi yang dibutuhkan dari makanan yang kita santap.
