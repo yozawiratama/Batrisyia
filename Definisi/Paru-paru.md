@@ -1,0 +1,13 @@
+Pernahkah kamu menarik napas dalam-dalam, lalu merasakan dadamu mengembang? Nah, di dalam dadamu itulah ada dua organ penting berbentuk spons yang bernama **paru-paru**! Paru-paru ini adalah "pabrik" udara di tubuh kita, tempat terjadinya pertukaran gas yang sangat penting agar kita bisa hidup.
+
+Secara harfiah, **paru-paru** adalah sepasang organ berongga dan elastis yang terletak di dalam rongga dada kita, dilindungi oleh tulang rusuk. Bentuknya mirip seperti balon spons, yang bisa mengembang dan mengempis saat kita bernapas. Kita punya dua paru-paru, satu di sisi kanan dan satu lagi di sisi kiri.
+
+Kalau kita telusuri asal katanya, kata "paru-paru" sudah ada dalam bahasa Indonesia sejak dulu. Dalam beberapa bahasa daerah di Indonesia, seperti bahasa Jawa, juga dikenal dengan istilah yang mirip. Penamaan ini menggambarkan organ yang bentuknya berongga dan memiliki banyak bagian kecil di dalamnya, mirip dengan spons.
+
+Lalu, apa sih tugas utama paru-paru? Tugas utamanya adalah untuk bernapas, tapi lebih tepatnya, paru-paru berfungsi sebagai tempat pertukaran udara. Saat kita menghirup napas, udara yang kaya **oksigen** akan masuk ke paru-paru. Di dalam paru-paru, oksigen ini akan diserap oleh darah untuk dibawa ke seluruh tubuh. Setelah itu, darah akan membawa kembali **karbon dioksida** (gas sisa yang tidak dibutuhkan tubuh) ke paru-paru untuk kemudian dikeluarkan saat kita mengembuskan napas.
+
+Di dalam paru-paru, ada banyak sekali cabang-cabang kecil seperti dahan pohon yang disebut **bronkus** dan **bronkiolus**. Ujung dari cabang-cabang ini adalah kantung-kantung udara yang sangat kecil, tipis, dan jumlahnya jutaan, namanya **alveoli**. Di alveoli inilah pertukaran oksigen dan karbon dioksida terjadi dengan sangat cepat.
+
+Paru-paru bekerja sama dengan otot-otot pernapasan, terutama diafragma (otot besar di bawah paru-paru), untuk membuat kita bisa bernapas. Saat diafragma bergerak ke bawah, paru-paru mengembang dan udara masuk. Saat diafragma bergerak ke atas, paru-paru mengempis dan udara keluar.
+
+Jadi, **paru-paru** adalah organ yang sangat vital bagi kehidupan kita. Mereka seperti filter dan penukar gas raksasa yang memastikan tubuh kita selalu mendapatkan oksigen bersih dan membuang gas kotor. Karena perannya yang sangat penting, menjaga kesehatan paru-paru kita, misalnya dengan tidak merokok dan menghindari polusi udara, adalah hal yang sangat penting!
