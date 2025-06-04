@@ -1,1 +1,13 @@
-.obsidian
+
+# Ignore Obsidian's configuration files
+# and folders 
+# except for the vault folder   
+# and the .obsidian folder
+# which are essential for Obsidian to function properly.
+# Obsidian configuration files
+# and folders
+.obsidian/
+# Ignore Obsidian's cache
+.obsidian/workspace.json
+.obsidian/workspace.json
+/.obsidian
